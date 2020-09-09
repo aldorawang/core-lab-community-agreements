@@ -65,3 +65,7 @@ Where you’re challenged is where you have space to learn.
 ## **Stay present; take care of yourself**
 
 Truly engaging can be challenging and vulnerable.
+
+1. Try not to be late for class, and be prepared. But health first.
+2. When you know that you will be absent, let the professor or your friends in class know.
+3. Be open and mindful. Think before you say.
